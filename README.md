@@ -1,0 +1,11 @@
+- 👋 Hi, I’m @Manshika13-bit
+- 👀 I’m interested in social media 
+- 🌱 I’m currently learning new things to expand my knowledge more
+- to help everyone who really need this skills.
+- helps mostly the house wife, youths, job seekers etc. To earn 15k-30k . 
+- 💞️ I’m looking to collaborate my students and friends with my personal mentorship ☺️.
+- 📫 How to reach me ( by dm me in WhatsApp)
+- 😄 Pronouns: she/ her
+- ⚡ Fun fact: ... I'm lill crazy man.
+- 🧑‍💻 My link is just below 👇 click and reach to me 😉
+🖇️https://wa.link/ovp9jz
